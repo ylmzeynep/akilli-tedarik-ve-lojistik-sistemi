@@ -1,0 +1,1 @@
+# akilli-tedarik-ve-lojistik-sistemi
